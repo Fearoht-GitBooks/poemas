@@ -1,119 +1,23 @@
-# Tu ni te imaginas
-
-Tu ni te imaginas las veces que en sueños
-
-Caminamos junto tomados de la mano
-
-Tu ni te imaginas cuantas veces fuiste
-
-Totalmente mia ni te lo imaginas
-
-
-
-Tu ni te imaginas
-
-Que en mis sueños locos
-
-Lo infiel que te vuelves
-
-En mi conpania
-
-
-
-Tu ni te imaginas
-
-Las cosas que olvidas por sentirte mia
-
-Ni te lo imaginas
-
-
-
-Ni te lo imaginas
-
-Que mis manos pueden
-
-Dibujar tu cuerpo
-
-Sin haber pecado
-
-Que tengo en mi boca
-
-Sabor de tu boca
-
-Y no te he besado
-
-
-
-Ni te lo imaginas
-
-Cuando conversamos
-
-Que tu gran amigo es tu enamorado
-
-Ni te lo imaginas
-
-Cuando nos miramos
-
-En cualquier momento te robo y nos vamos.
-
-
-
-Tu ni te imaginas
-
-Dentro de mis sueños
-
-De que forma tiemblas cuando yo te beso
-
-
-
-Tu ni te imaginas
-
-Lo que feliz que eres dentro de mis suenos
-
-Ni te lo imaginas
-
-
-
-Tu ni te imaginas
-
-En mi pensamiento
-
-Como desesperas por una caricia
-
-
-
-Tu ni te imaginas&#x20;
-
-como te liberas en mi pensamiento
-
-Ni te lo imaginas
-
-
-
-Ni te lo imaginas
-
-Que mis manos pueden
-
-Dibujar tu cuerpo
-
-Sin haber pecado
-
-Que tengo en mi boca
-
-Sabor de tu boca
-
-Y no te he besado
-
-
-
-Ni te lo imaginas
-
-Cuando conversamos
-
-Que tu gran amigo es tu enamorado
-
-Ni te lo imaginas
-
-Cuando nos miramos
-
-En cualquier momento te robo y nos vamos.
+# Frases
+
+* La descencia no pelea con nadie
+* Si tan solo mas hombres prefirieran el hogar en vez del oro, el mundo seria mas feliz.
+* Uno suele encontrar su destino en el camino que toma para evitarlo
+* Un guerrero astuto no ataca al cuerpo ni q la mente , ataca el corazón
+* Las sociedades tienen a los delincuentes que se merecen
+* Solo hay noticias, no son buenas ni malas
+* Ofrecemos la amistad a través de las estrellas. Ustedes no están solos
+* Los accidentes no existen
+* Cuando el alumno este listo, el maestro aparecerá.
+* La fuerza imparable que se enfrenta al objeto inamovible
+* Cualquier organización que diseña un sistema producirá un diseño cuya estructura es una copia de la estructura de comunicación de la organización
+* Sólo el que manda con amor es servido con fidelidad
+* Fate whispers to the warrior: You can not withstand the storm. The warrior whispers back: I am the storm.
+* Si vis pacem, para bellum
+* How the little piggies will grunt when they hear how the old boar suffered
+* Un guerrero podrá cambiar su fortuna pero no su corazón
+* “Lidérame, sígueme… o quítate de mi camino” - George Patton, general estadounidense
+* “Los planes son inútiles, pero la planificación lo es todo” - Dwight D. Eisenhower.
+* “Un buen plan hoy es mejor que uno perfecto mañana” - George Patton
+* “Ningún bastardo ha ganado una guerra muriendo por su país. Las guerras se ganan haciendo que el otro bastardo muera por su país” - George Patton
+* “Nunca se ha defendido algo con éxito, solo se puede atacar, atacar y atacar un poco más “ - George Patton
