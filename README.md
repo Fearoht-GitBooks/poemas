@@ -21,3 +21,4 @@
 * “Un buen plan hoy es mejor que uno perfecto mañana” - George Patton
 * “Ningún bastardo ha ganado una guerra muriendo por su país. Las guerras se ganan haciendo que el otro bastardo muera por su país” - George Patton
 * “Nunca se ha defendido algo con éxito, solo se puede atacar, atacar y atacar un poco más “ - George Patton
+* El ser huamno tiene el defecto de presumir lo que carece
