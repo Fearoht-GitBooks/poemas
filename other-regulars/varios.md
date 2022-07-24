@@ -271,3 +271,30 @@ In a very real sense, we are all aliens on a strange planet. We spend most of ou
 ### Oceanico
 
 Yo surgí del océano. Cómo coral de fuego, y orino agua salada. Me rasco la espalda con el miembro de una ballena y me froto el pecho con sus bolas. Me moriré cuando ya no haya marea y la luna se ahogue.
+
+
+
+————————
+
+**EL TIBURON**&#x20;
+
+
+
+El tiburón tiene lágrimas
+
+y éstas recorren su rostro
+
+sin embargo, el tiburón vive en el agua
+
+así que las lágrimas no se ven.
+
+&#x20;
+
+En las profundidades está solo
+
+y sus lágrimas fluyen más
+
+Y de ahí viene que el agua
+
+de los mares es salada.
+
