@@ -1,0 +1,3 @@
+# Herramientas del Ninja
+
+Estas deben ser tus herramientas de oficio, estilizadas bajo la luna a partir de patrones que son parte de nuestra herencia familiar. El acero de la tierra, la madera del bosque, son templados por el fuego y lavados en la corriente para lograr su pureza, para convertirse en los sirvientes de los vientos de tu intención. Usa tus armas con prudencia empleándolas solo cuando el Cosmos lo demande. Usa tu creatividad como primer medio para prevenir el peligro. Cuando no puedas prevenir, evita. Cuando no puedas evitar, confunde. Cuando no puedas confundir, disuade. Cuando no puedas disuadir, hiere. Cuando no puedas herir, lesiona. Cuando no puedas lesionar, mutila. Solo cuando el esquema de la Totalidad te nombre su mensajero...mata.

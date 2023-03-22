@@ -16,3 +16,4 @@
 * [El Guerrero](el-guerrero.md)
 * [Forever May Not Be Long Enough](forever-may-not-be-long-enough.md)
 * [Por qué ver por separadas esta vida](por-que-ver-por-separadas-esta-vida.md)
+* [Herramientas del Ninja](herramientas-del-ninja.md)
